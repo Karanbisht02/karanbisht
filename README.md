@@ -1,2 +1,0 @@
-# karanbisht
-karan Bisht Development
